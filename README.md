@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **gauravginodia02@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/10OH1BfbIPr6opgLmRR3n7DrERB7RAYle/view?usp=sharing]
+- 📄 Know about my experiences [https://drive.google.com/file/d/1s44kicXO40ncigfHDy5fzREvz09xc_i3/view]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
